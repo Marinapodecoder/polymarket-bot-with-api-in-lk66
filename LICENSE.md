@@ -1,4 +1,4 @@
-# 
+# vip Polymarket Automation Script | scalping-strategies + machine-learning-models is the best Polymarket automation-script, featuring scalping-strategies and
 
 
 
